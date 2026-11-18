@@ -1,0 +1,1 @@
+# paradigmasTP3BIS
